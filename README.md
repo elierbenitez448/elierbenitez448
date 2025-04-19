@@ -22,6 +22,8 @@ Proyectos pequeños o contribuciones en:
 
 ### 📫 Cómo contactarme  
 - 📧 Correo: benitezelier84@gmail.com
+- Twitter: https://x.com/ErlierI26674
+- Discord: https://discord.gg/rgeWpTxC
 
 ### ⚡ Datos curiosos  
 - 😄 Pronombres: Él/His.  
